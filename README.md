@@ -1,1 +1,1 @@
-# HibernateExamples saipriya paladugu is 
+# HibernateExamples saipriya paladugu is good girl
